@@ -1,0 +1,1 @@
+The key to a mouth - melting juicy,tender and succulent chicken tikka in proper marination.During the marination , the chicken not only absorbs the flavors from the spices and spices but also tenderizes naturally without the need to use any chemical tenderizers.
